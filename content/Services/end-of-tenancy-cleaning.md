@@ -1,5 +1,5 @@
 ---
-title: end of tenancy cleaning
+title: End of tenancy cleaning
 ---
 
 I recently had the pleasure of using the end of tenancy cleaning service from ABC Cleaners. I was amazed at the level of detail and care they put into the job. From the moment I contacted them, they were professional and courteous. They arrived on time and were extremely thorough in their work.

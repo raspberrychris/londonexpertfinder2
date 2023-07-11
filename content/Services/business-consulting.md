@@ -1,5 +1,5 @@
 ---
-title: business consulting
+title: Business consulting
 ---
 
 As a business consultant, I have had the pleasure of working with many clients. I have seen firsthand how effective business consulting services can be in helping businesses succeed.

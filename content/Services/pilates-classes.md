@@ -1,5 +1,5 @@
 ---
-title: pilates classes
+title: Pilates classes
 ---
 
 I recently attended a Pilates class and it was an amazing experience! I had heard so much about Pilates and was excited to finally try it for myself.

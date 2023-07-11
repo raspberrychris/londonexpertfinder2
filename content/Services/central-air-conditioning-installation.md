@@ -1,5 +1,5 @@
 ---
-title: central air conditioning installation
+title: Central air conditioning installation
 ---
 
 I recently had the pleasure of having Central Air Conditioning Installation come to my home and install a new air conditioning unit. I was extremely pleased with the entire process. The technicians were knowledgeable and professional, and they answered all of my questions thoroughly. The installation was completed quickly and efficiently, and I was impressed with the quality of the work.

@@ -1,5 +1,5 @@
 ---
-title: ice skating lessons
+title: Ice skating lessons
 ---
 
 I recently took ice skating lessons and I'm so glad I did! I had always wanted to learn how to skate but was hesitant because I thought it would be too hard. I was pleasantly surprised to find that the lessons were easy to follow and the instructor was very patient and encouraging. The instructor was knowledgeable and gave great tips on how to improve my technique.

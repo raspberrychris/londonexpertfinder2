@@ -1,5 +1,5 @@
 ---
-title: tarot card reading
+title: Tarot card reading
 ---
 
 I recently had a tarot card reading and it was a truly amazing experience. I was a bit skeptical at first, but the reader was very professional and knowledgeable. She was able to provide me with insights into my life that I wouldn't have been able to access on my own. She was able to provide me with clarity and direction that I had been seeking for a long time.

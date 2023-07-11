@@ -1,5 +1,5 @@
 ---
-title: private investigators
+title: Private investigators
 ---
 
 I recently had the opportunity to use the services of a private investigator and I was extremely impressed. The investigator was professional, knowledgeable, and incredibly discreet. They were able to provide me with the information I needed quickly and efficiently.

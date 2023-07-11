@@ -1,5 +1,5 @@
 ---
-title: acupuncture services
+title: Acupuncture services
 ---
 
 I recently tried acupuncture services and I was so impressed! I had heard about the benefits of acupuncture, but I had never experienced it before. The practitioner was so knowledgeable and took the time to explain the process and answer all of my questions. The treatment itself was incredibly relaxing and I felt like I was in a different world. After the session, I felt energized and my body felt so much better.

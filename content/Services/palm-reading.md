@@ -1,5 +1,5 @@
 ---
-title: palm reading
+title: Palm reading
 ---
 
 I recently had my palm read and I must say, it was one of the most eye-opening experiences of my life. I had no idea what to expect when I went in, but the palm reader put me right at ease. She was incredibly knowledgeable and gave me a detailed reading of my life, past, present, and future. She was able to accurately describe my personality traits and even gave me advice on how to best handle certain situations.

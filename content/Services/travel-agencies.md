@@ -1,5 +1,5 @@
 ---
-title: travel agencies
+title: Travel agencies
 ---
 
 I recently used a travel agency to plan my trip and I was extremely impressed with the service that I received. The staff was knowledgeable, friendly, and extremely helpful in finding the perfect itinerary for my needs. They took the time to listen to my wants and needs and then provided me with a variety of options to choose from.

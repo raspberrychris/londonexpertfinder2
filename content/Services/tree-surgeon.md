@@ -1,5 +1,5 @@
 ---
-title: tree surgeon
+title: Tree surgeon
 ---
 
 I recently had the pleasure of working with a tree surgeon, and I was incredibly impressed with the quality of service I received. From the initial consultation to the completion of the project, the tree surgeon was professional, knowledgeable, and incredibly efficient.

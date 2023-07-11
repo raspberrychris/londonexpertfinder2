@@ -1,5 +1,5 @@
 ---
-title: pool and billiards lessons
+title: Pool and billiards lessons
 ---
 
 I recently took pool and billiards lessons and I am so glad I did! The lessons were incredibly informative and the instructor was extremely knowledgeable. He was able to provide me with tips and tricks to help me improve my game. I learned a lot about the different types of shots, angles, and strategies that I can use to become a better player.

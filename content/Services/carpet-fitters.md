@@ -1,5 +1,5 @@
 ---
-title: carpet fitters
+title: Carpet fitters
 ---
 
 I recently had the pleasure of using the services of a carpet fitter and I can honestly say that it was one of the best experiences I have ever had. The carpet fitter was professional, knowledgeable and friendly. He was able to quickly and accurately measure my room and then fit the carpet perfectly. He was also able to provide helpful advice on how to care for the carpet and how to maintain it in the future.

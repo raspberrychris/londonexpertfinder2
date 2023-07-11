@@ -1,5 +1,5 @@
 ---
-title: golf lessons
+title: Golf lessons
 ---
 
 I recently had the pleasure of taking golf lessons from a professional instructor at my local golf club. From the moment I arrived, I was greeted with a warm welcome and felt immediately at ease. My instructor was knowledgeable, patient and encouraging. He was able to quickly assess my current skill level and tailor the lessons to my needs. 

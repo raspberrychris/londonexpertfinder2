@@ -1,5 +1,5 @@
 ---
-title: artists
+title: Artists
 ---
 
 I recently had the pleasure of working with Artists, and I could not be more pleased with the results. From the moment I contacted them, I felt like I was in good hands. They were professional, knowledgeable, and friendly. They took the time to understand my needs and provided me with a personalized plan that fit my budget.

@@ -1,5 +1,5 @@
 ---
-title: dj hire
+title: DJ hire
 ---
 
 I recently had the pleasure of using a DJ hire service for my birthday party and it was an absolute blast! The DJ was professional, friendly, and played all of my favorite songs. The sound system was top-notch and the lighting was perfect for setting the mood.

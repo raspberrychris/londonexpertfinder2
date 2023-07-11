@@ -1,5 +1,5 @@
 ---
-title: boxing coaches
+title: Boxing coaches
 ---
 
 I recently had the opportunity to experience the services of a boxing coach and I can honestly say it was one of the best decisions I have ever made. My coach was incredibly knowledgeable and passionate about the sport and was able to provide me with the guidance and support I needed to improve my technique and become a better boxer.

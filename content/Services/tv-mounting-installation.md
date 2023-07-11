@@ -1,5 +1,5 @@
 ---
-title: tv mounting installation
+title: TV mounting installation
 ---
 
 I recently had a TV mounting installation done in my home, and I couldn't be happier with the results. The technician was professional, knowledgeable, and efficient. He was able to get the job done quickly and correctly, and I'm so glad that I chose this service.

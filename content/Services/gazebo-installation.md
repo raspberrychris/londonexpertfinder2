@@ -1,5 +1,5 @@
 ---
-title: gazebo installation
+title: Gazebo installation
 ---
 
 I recently had the pleasure of having a gazebo installed by a professional team and I have to say, it was a great experience. The team was knowledgeable, efficient, and friendly. They worked quickly and thoroughly to ensure that the gazebo was installed correctly and safely. The end result was a beautiful and sturdy structure that I know will last for years to come.

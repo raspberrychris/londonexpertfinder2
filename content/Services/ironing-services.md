@@ -1,5 +1,5 @@
 ---
-title: ironing services
+title: Ironing services
 ---
 
 I recently tried out the ironing services at the local dry cleaner and I'm so glad I did! The service was quick, efficient, and most importantly, my clothes looked amazing. The staff was friendly and helpful, and they made sure to explain the process to me thoroughly.

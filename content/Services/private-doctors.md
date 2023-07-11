@@ -1,5 +1,5 @@
 ---
-title: private doctors
+title: Private doctors
 ---
 
 I recently had the pleasure of visiting a private doctor for a routine check-up. I was immediately impressed by the level of care and attention I received. The doctor was friendly and knowledgeable, and took the time to answer all of my questions. The office was clean and modern, and the staff was friendly and professional.

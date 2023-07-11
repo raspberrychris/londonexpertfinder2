@@ -1,5 +1,5 @@
 ---
-title: life coaching
+title: Life coaching
 ---
 
 I recently had the pleasure of experiencing life coaching with a professional coach and I'm so glad I did! Life coaching has been an incredibly powerful tool for me to gain clarity and focus on my goals. It has helped me to identify and work through areas of my life that have been holding me back, and to develop strategies to move forward in a positive direction.

@@ -1,5 +1,5 @@
 ---
-title: massage therapy
+title: Massage therapy
 ---
 
 I recently had the pleasure of experiencing a massage therapy session and I'm so glad I did! From the moment I walked in the door, I was greeted with a warm welcome and a feeling of calm. The massage therapist was incredibly knowledgeable and took the time to explain the different types of massage therapy and the benefits they could provide. 

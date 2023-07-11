@@ -1,5 +1,5 @@
 ---
-title: reiki healing
+title: Reiki healing
 ---
 
 As someone who has experienced the power of Reiki healing, I can confidently say that it has been life-changing. Reiki healing is a form of energy healing that works to restore balance and harmony to the body, mind, and spirit. It is a gentle yet powerful technique that can help to reduce physical, emotional, and mental stress.

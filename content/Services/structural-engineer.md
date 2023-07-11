@@ -1,5 +1,5 @@
 ---
-title: structural engineer
+title: Structural engineer
 ---
 
 I recently had the pleasure of working with a structural engineer and I can honestly say it was one of the best experiences I've ever had. The engineer was professional, knowledgeable, and incredibly helpful. They took the time to explain the process and answer any questions I had.

@@ -1,5 +1,5 @@
 ---
-title: hypnotherapy
+title: Hypnotherapy
 ---
 
 I recently had the opportunity to experience hypnotherapy and it was an incredibly positive experience. From the moment I walked into the office, I felt like I was in a safe and comfortable environment. The practitioner was very knowledgeable and made sure to explain the process to me in detail before we began. 

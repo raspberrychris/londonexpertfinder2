@@ -1,5 +1,5 @@
 ---
-title: fence repair and maintenance
+title: Fence repair and maintenance
 ---
 
 I recently had a great experience with a fence repair and maintenance service. They came out to my home and did a thorough inspection of my fence. They identified several areas that needed attention and gave me a detailed report of what needed to be done. They then provided me with a quote and timeline for the work. 

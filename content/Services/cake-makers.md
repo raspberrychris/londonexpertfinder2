@@ -1,5 +1,5 @@
 ---
-title: cake makers
+title: Cake makers
 ---
 
 I recently had the pleasure of using a cake maker for a special occasion, and I can honestly say that it was one of the best decisions I ever made. The cakes that were produced were absolutely stunning and tasted even better! The cake maker was so professional and accommodating that it made the whole process so easy and stress-free. From the initial consultation to the delivery of the finished product, every step of the way was handled with the utmost care and attention. 

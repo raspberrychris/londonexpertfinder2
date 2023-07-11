@@ -1,5 +1,5 @@
 ---
-title: iridology
+title: Iridology
 ---
 
 I recently had the opportunity to learn more about Iridology and I'm so glad I did! Iridology is a fascinating science that studies the eye to gain insight into a person's health. It's a non-invasive method that can help identify health issues and provide guidance on how to address them.

@@ -1,5 +1,5 @@
 ---
-title: vehicle window tinting
+title: Vehicle window tinting
 ---
 
 I recently had my vehicle windows tinted and I am so glad I did! The service was top-notch and the results were amazing. The tinting process was quick and easy, and the tinting film was of superior quality. The tinting film not only looks great, but it also blocks out UV rays and keeps the interior of my car cooler. I am confident that my car will be protected from the sun's harsh rays for years to come.

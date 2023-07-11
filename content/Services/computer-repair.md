@@ -1,5 +1,5 @@
 ---
-title: computer repair
+title: Computer repair
 ---
 
 I recently had the pleasure of using the computer repair service at ABC Computers. From start to finish, the experience was top-notch. The technician was knowledgeable, friendly, and extremely helpful. He was able to diagnose and repair my computer quickly and efficiently.

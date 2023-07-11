@@ -1,5 +1,5 @@
 ---
-title: window cleaners
+title: Window cleaners
 ---
 
 I recently had the pleasure of using the services of a window cleaner and I can honestly say that it was one of the best decisions I have ever made. The windows in my home were in desperate need of a good clean and the window cleaner did an absolutely amazing job. They were incredibly professional and efficient, and the results were outstanding. My windows were sparkling clean and the difference was remarkable.

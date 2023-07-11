@@ -1,5 +1,5 @@
 ---
-title: face painting
+title: Face painting
 ---
 
 I recently had the pleasure of experiencing face painting for the first time. I was amazed at the level of detail and creativity that went into each design. The artist was incredibly talented and patient with me as I chose my design. The colors were vibrant and the lines were crisp. I felt like I was in a fairytale! 

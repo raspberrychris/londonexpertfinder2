@@ -1,5 +1,5 @@
 ---
-title: commercial interior designers
+title: Commercial interior designers
 ---
 
 I recently had the pleasure of working with a commercial interior design team and I could not be happier with the results! From the moment I first contacted them, I knew I was in good hands. The team was incredibly knowledgeable and professional, and they were able to help me create a space that perfectly suited my needs.

@@ -1,5 +1,5 @@
 ---
-title: pet sitting
+title: Pet sitting
 ---
 
 As a pet owner, I understand the importance of finding a reliable pet sitter. I recently had the pleasure of using the pet sitting service from ABC Pet Sitting and I was incredibly impressed. 

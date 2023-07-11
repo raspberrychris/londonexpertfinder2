@@ -1,5 +1,5 @@
 ---
-title: bus coach hire
+title: Bus coach hire
 ---
 
 As someone who has used bus coach hire for a number of trips, I can confidently say that it is an excellent service. The coaches are comfortable, spacious, and well-maintained, and the staff are friendly and knowledgeable. The drivers are experienced and always take the safest routes. The prices are very reasonable too.

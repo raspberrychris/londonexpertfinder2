@@ -1,5 +1,5 @@
 ---
-title: modeling
+title: Modeling
 ---
 
 I recently had the pleasure of working with a modeling agency and I was incredibly impressed with the level of service I received. From the moment I first contacted them, they were incredibly helpful and accommodating. They took the time to answer all of my questions and provided me with the necessary information and resources to make sure I was successful.

@@ -1,5 +1,5 @@
 ---
-title: caterers
+title: Caterers
 ---
 
 I recently had the pleasure of using the services of a local caterer for a family gathering. From the moment I contacted them, I could tell that they were professional and experienced. They took the time to understand my needs and provided me with a variety of options that fit my budget.

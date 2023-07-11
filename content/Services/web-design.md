@@ -1,5 +1,5 @@
 ---
-title: web design
+title: Web design
 ---
 
 I recently had the pleasure of working with a web design company to create a website for my business. From the beginning, they were professional, friendly, and incredibly knowledgeable about the web design process.

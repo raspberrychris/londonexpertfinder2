@@ -1,5 +1,5 @@
 ---
-title: business career coaching
+title: Business career coaching
 ---
 
 I recently had the opportunity to experience a business career coaching session with an amazing coach. I was so impressed with the level of knowledge and expertise that the coach had. They asked me thoughtful questions and really took the time to understand my goals and dreams. They then provided me with tangible and actionable steps to take to help me reach my goals.

@@ -1,5 +1,5 @@
 ---
-title: genealogy
+title: Genealogy
 ---
 
 As someone who has always been interested in learning more about my family history, I recently decided to explore the world of genealogy. After doing some research, I decided to give genealogy a try and I'm so glad I did! With genealogy, I've been able to trace my family tree back to the early 1800s, discovering new relatives and uncovering fascinating stories about my ancestors.

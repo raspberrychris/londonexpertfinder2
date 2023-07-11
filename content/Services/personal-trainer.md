@@ -1,5 +1,5 @@
 ---
-title: personal trainer
+title: Personal trainer
 ---
 
 I recently started working with a personal trainer, and I can honestly say it has been one of the best decisions I have ever made. My trainer is knowledgeable, encouraging, and motivating. He has helped me to reach my fitness goals and has given me the confidence to take on new challenges. 

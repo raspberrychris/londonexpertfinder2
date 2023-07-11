@@ -1,5 +1,5 @@
 ---
-title: ballroom dance classes
+title: Ballroom dance classes
 ---
 
 I took ballroom dance classes recently and I can honestly say it was one of the best decisions I ever made. I was a bit hesitant at first, but the instructor was so patient and encouraging that I soon felt comfortable. The classes were well-structured and the instructor was knowledgeable and passionate about teaching us the different steps. I was amazed at how quickly I was able to pick up the moves and I felt like I was really improving each week.

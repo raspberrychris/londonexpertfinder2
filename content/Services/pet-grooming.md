@@ -1,5 +1,5 @@
 ---
-title: pet grooming
+title: Pet grooming
 ---
 
 I recently took my pet to a pet grooming service and I was absolutely blown away! From the moment I walked in, I was greeted with a friendly and professional staff who was knowledgeable and passionate about their work. They took the time to get to know my pet and understand their needs. The pet groomers were patient and gentle with my pet, making sure they were comfortable and relaxed throughout the entire process.

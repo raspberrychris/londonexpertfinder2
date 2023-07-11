@@ -1,5 +1,5 @@
 ---
-title: lawyer
+title: Lawyer
 ---
 
 As a lawyer, I have been providing legal services for many years and I am proud to say that I have been able to help many of my clients with their legal needs. I believe that I offer a high quality service that is tailored to the individual needs of my clients. I take the time to get to know my clients and understand their situation in order to provide the best possible advice and representation.

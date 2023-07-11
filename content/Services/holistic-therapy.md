@@ -1,5 +1,5 @@
 ---
-title: holistic therapy
+title: Holistic therapy
 ---
 
 I recently had the pleasure of experiencing a holistic therapy session and I can honestly say it was one of the most calming and therapeutic experiences of my life. From the moment I stepped into the room, I was filled with a sense of peace and relaxation. The therapist was incredibly knowledgeable and professional, and was able to provide me with a tailored experience that was tailored to my individual needs. The session itself was incredibly calming and I felt like I was able to completely relax and let go of any stress or tension I had been carrying.

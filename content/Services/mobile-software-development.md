@@ -1,5 +1,5 @@
 ---
-title: mobile software development
+title: Mobile software development
 ---
 
 I recently had the opportunity to work with a mobile software development team and I'm absolutely thrilled with the results. The team was incredibly knowledgeable and professional, and they were able to bring my vision to life in a way that I never thought possible. They were able to take my ideas and turn them into a fully functional mobile application that looks and works great.

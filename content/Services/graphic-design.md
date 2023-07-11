@@ -1,5 +1,5 @@
 ---
-title: graphic design
+title: Graphic design
 ---
 
 I recently had the pleasure of working with a graphic designer to create a logo for my business. I was amazed at the level of creativity and professionalism that was put into the design. The designer was able to take my ideas and turn them into a beautiful logo that perfectly captures the essence of my business.

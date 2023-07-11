@@ -1,5 +1,5 @@
 ---
-title: fine woodworking
+title: Fine woodworking
 ---
 
 I recently had the pleasure of attending a course at Fine Woodworking. I was absolutely blown away by the quality of instruction and the level of detail that went into the course. The instructors were incredibly knowledgeable and passionate about woodworking, and they were able to provide detailed explanations and demonstrations of all the techniques they taught. The course was also incredibly hands-on, and I was able to get a lot of practice in with the tools and techniques. I was also able to take home a few projects that I had completed during the course, which was a great bonus.

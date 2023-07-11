@@ -1,5 +1,5 @@
 ---
-title: therapy
+title: Therapy
 ---
 
 I recently had the opportunity to experience therapy, and I'm so glad I did. I was nervous at first, but the therapist was so kind and understanding that I felt comfortable right away. They asked me questions and listened to my answers, helping me to understand my feelings and emotions. I was able to talk about things I had never talked about before, and it was incredibly freeing.

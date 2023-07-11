@@ -1,5 +1,5 @@
 ---
-title: garden shed construction
+title: Garden shed construction
 ---
 
 I recently had a garden shed built by a local construction company and I couldn't be happier with the results. The shed was constructed with the highest quality materials and it looks great in my backyard. The construction crew was professional and efficient, and they worked quickly to get the job done.

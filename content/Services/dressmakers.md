@@ -1,5 +1,5 @@
 ---
-title: dressmakers
+title: Dressmakers
 ---
 
 I recently had the pleasure of working with a dressmaker to create the perfect dress for my special occasion. From the moment I walked into the shop, I knew I was in good hands. The dressmaker was incredibly friendly and knowledgeable, and she was able to provide me with a wealth of information about the different fabrics and styles available. She was also able to give me advice on how to make the dress fit perfectly, and she was very patient with me as I tried on different styles.

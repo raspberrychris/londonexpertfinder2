@@ -1,5 +1,5 @@
 ---
-title: glaziers
+title: Glaziers
 ---
 
 I recently had the pleasure of using the services of a glazier, and I must say I was very impressed. From the very first phone call, I was treated with respect and professionalism. The glazier was knowledgeable, friendly, and provided excellent customer service.

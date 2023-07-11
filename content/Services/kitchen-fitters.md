@@ -1,5 +1,5 @@
 ---
-title: kitchen fitters
+title: Kitchen fitters
 ---
 
 I recently had the pleasure of working with a kitchen fitter and I must say, I was extremely impressed with the quality of service they provided. From the initial consultation to the final installation, they were professional, knowledgeable, and friendly. They took the time to understand my needs and provided excellent advice on how to best utilize the space I had available.

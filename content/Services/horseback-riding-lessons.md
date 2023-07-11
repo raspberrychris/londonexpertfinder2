@@ -1,5 +1,5 @@
 ---
-title: horseback riding lessons
+title: Horseback riding lessons
 ---
 
 I recently had the pleasure of taking horseback riding lessons at a local stable and it was an amazing experience! From the moment I arrived, I was warmly welcomed by the staff and felt right at home. The instructor was knowledgeable and patient, and I felt comfortable learning from him.

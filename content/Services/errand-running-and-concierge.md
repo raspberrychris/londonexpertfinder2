@@ -1,5 +1,5 @@
 ---
-title: errand running and concierge
+title: Errand running and concierge
 ---
 
 I recently used an errand running and concierge service and it was an absolute game changer for me. I had a lot of errands to run and was feeling overwhelmed. The service was incredibly helpful. They took care of all my errands, from grocery shopping to picking up dry cleaning. They even took care of some of my more complicated tasks, like setting up appointments and making travel arrangements.

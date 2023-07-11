@@ -1,5 +1,5 @@
 ---
-title: photographer
+title: Photographer
 ---
 
 I recently had the pleasure of working with a photographer for a special event. The photographer was amazing! From the moment I contacted them, they were professional, friendly, and accommodating. They took the time to understand my vision and worked hard to capture the perfect shots.

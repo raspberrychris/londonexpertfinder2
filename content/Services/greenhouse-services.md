@@ -1,5 +1,5 @@
 ---
-title: greenhouse services
+title: Greenhouse services
 ---
 
 I recently had the pleasure of using Greenhouse Services for my home. I was amazed at the quality of the service they provided. From the initial consultation to the finished product, I was impressed with the attention to detail and the professionalism of the entire team.

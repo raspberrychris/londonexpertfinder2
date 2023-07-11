@@ -1,5 +1,5 @@
 ---
-title: carpenters
+title: Carpenters
 ---
 
 I recently hired a carpenter to do some work around my house, and I was really impressed with the quality of the service I received. The carpenter was professional, efficient, and knowledgeable. He was able to complete the job quickly and to a high standard.

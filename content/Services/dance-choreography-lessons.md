@@ -1,5 +1,5 @@
 ---
-title: dance choreography lessons
+title: Dance choreography lessons
 ---
 
 I recently took dance choreography lessons and I'm so glad I did! I had so much fun learning different moves and techniques. The instructor was really knowledgeable and patient with me. He was able to break down the steps so that I could understand them and practice them easily. He also gave me great feedback and encouragement throughout the lessons.

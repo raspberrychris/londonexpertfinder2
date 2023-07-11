@@ -1,5 +1,5 @@
 ---
-title: divorce lawyer
+title: Divorce lawyer
 ---
 
 I recently used the services of a divorce lawyer and I was extremely pleased with the outcome. The lawyer was knowledgeable, professional, and compassionate. They made sure that I was well-informed throughout the entire process and that I understood my rights and responsibilities. The lawyer was also able to negotiate a fair settlement that was beneficial to both parties.

@@ -1,5 +1,5 @@
 ---
-title: scaffolding
+title: Scaffolding
 ---
 
 I recently had the pleasure of using a scaffolding service for a home improvement project. The service was top-notch and I was extremely impressed with the quality of the work. The team was professional, knowledgeable, and efficient. They worked quickly and safely to ensure that the job was done properly and to my satisfaction.

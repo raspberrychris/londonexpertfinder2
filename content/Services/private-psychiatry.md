@@ -1,5 +1,5 @@
 ---
-title: private psychiatry
+title: Private psychiatry
 ---
 
 I recently had the pleasure of experiencing private psychiatry services and I must say, it was an incredibly positive experience. From the moment I arrived, I felt welcomed and taken care of. The staff was incredibly friendly and knowledgeable, and they made sure to take the time to answer all of my questions. They also provided me with a comprehensive assessment and treatment plan tailored to my needs.

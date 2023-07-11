@@ -1,5 +1,5 @@
 ---
-title: sewing classes
+title: Sewing classes
 ---
 
 I recently took a sewing class, and I'm so glad I did! It was an incredible experience. I learned so much about the art of sewing and the different techniques that can be used to create beautiful pieces of clothing. The instructor was incredibly knowledgeable and patient, and she was able to answer any questions I had. She also provided helpful tips and tricks to make sure I was successful in my projects.

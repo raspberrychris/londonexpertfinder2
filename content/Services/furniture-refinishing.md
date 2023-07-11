@@ -1,5 +1,5 @@
 ---
-title: furniture refinishing
+title: Furniture refinishing
 ---
 
 I recently had the pleasure of using a furniture refinishing service and I can honestly say that it was a great experience. The service was professional, efficient, and the results were incredible. The furniture looked like new again and I was amazed at how much of a difference it made.

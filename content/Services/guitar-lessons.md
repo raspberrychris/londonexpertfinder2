@@ -1,5 +1,5 @@
 ---
-title: guitar lessons
+title: Guitar lessons
 ---
 
 I recently took guitar lessons from a local teacher and I have to say, it was one of the best experiences I've ever had. The teacher was knowledgeable, patient, and encouraging. He was able to break down complex concepts into easy-to-understand pieces that I could actually understand and apply. He was also able to give me tips and tricks to help me improve my playing.

@@ -1,5 +1,5 @@
 ---
-title: security guards
+title: Security guards
 ---
 
 As a business owner, I understand the importance of having security guards on site. I recently hired a security guard service and was extremely pleased with the results. They were professional, courteous, and attentive. They provided a sense of security that I had not felt before.

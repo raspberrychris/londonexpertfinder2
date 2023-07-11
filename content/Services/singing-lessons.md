@@ -1,5 +1,5 @@
 ---
-title: singing lessons
+title: Singing lessons
 ---
 
 I recently started taking singing lessons and it has been an incredible experience. The instructor is knowledgeable, patient and encouraging. She has helped me to develop my vocal range and improve my technique. She also provides helpful feedback and advice to help me reach my goals.

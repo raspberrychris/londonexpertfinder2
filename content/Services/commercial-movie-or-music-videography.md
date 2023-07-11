@@ -1,5 +1,5 @@
 ---
-title: commercial movie or music videography
+title: Commercial movie or music videography
 ---
 
 I recently had the pleasure of working with a commercial movie and music videography service and I was absolutely blown away! From the moment I first contacted them, I knew I was in good hands. They were incredibly professional and knowledgeable, and they made sure to explain every step of the process to me in detail.

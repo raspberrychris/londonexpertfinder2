@@ -1,5 +1,5 @@
 ---
-title: muralist
+title: Muralist
 ---
 
 I recently had the pleasure of working with a muralist for a project at my home. I was so impressed with the level of detail and creativity that they brought to the project. The muralist was able to take my vision and bring it to life in a way that I never could have imagined. The colors were vibrant and the design was unique. I was also impressed with the professionalism and attention to detail that the muralist provided. They took the time to understand my vision and make sure that the final product was exactly what I wanted.

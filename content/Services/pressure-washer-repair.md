@@ -1,5 +1,5 @@
 ---
-title: pressure washer repair
+title: Pressure washer repair
 ---
 
 I recently had my pressure washer repaired by the team at Pressure Washer Repair, and I could not be happier with the results! The technician was knowledgeable and professional, and they made sure to explain every step of the repair process to me. The repair was done quickly and efficiently, and I was back up and running in no time.

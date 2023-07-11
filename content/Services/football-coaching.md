@@ -1,5 +1,5 @@
 ---
-title: football coaching
+title: Football coaching
 ---
 
 I recently had the pleasure of experiencing football coaching with a local team and I'm so glad I did! The coaching was top-notch and the team was incredibly welcoming.

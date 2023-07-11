@@ -1,5 +1,5 @@
 ---
-title: wedding makeup
+title: Wedding makeup
 ---
 
 I recently had the pleasure of having my wedding makeup done by an amazing makeup artist. From the moment I met her, I knew I was in good hands. She was so friendly and professional, and she really took the time to understand my vision for my special day.

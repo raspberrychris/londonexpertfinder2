@@ -1,5 +1,5 @@
 ---
-title: marketing
+title: Marketing
 ---
 
 I recently used the services of a marketing company and I was blown away by the results. They provided me with a comprehensive marketing plan that included everything from creating a website to developing a social media presence. The team was professional, knowledgeable and highly responsive to my needs. They listened to my goals and provided me with creative and effective solutions that helped me reach my goals.

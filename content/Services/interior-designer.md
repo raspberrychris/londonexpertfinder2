@@ -1,5 +1,5 @@
 ---
-title: interior designer
+title: Interior designer
 ---
 
 As an interior designer, I can honestly say that the service I provide is second to none. With my years of experience and my unique eye for design, I'm able to create beautiful, functional spaces that my clients love.

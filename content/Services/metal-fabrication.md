@@ -1,5 +1,5 @@
 ---
-title: metal fabrication
+title: Metal fabrication
 ---
 
 I recently had the pleasure of working with a metal fabrication company and I could not be more pleased with the results. The team was incredibly knowledgeable and helpful throughout the entire process. They took the time to understand my needs and worked with me to create a custom solution that fit my budget and timeline.

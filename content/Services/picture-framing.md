@@ -1,5 +1,5 @@
 ---
-title: picture framing
+title: Picture framing
 ---
 
 I recently had a great experience using a picture framing service. The service was efficient, professional and reasonably priced. The staff was friendly and helpful throughout the process. They took the time to explain the different options available and helped me choose the best frame for my artwork.

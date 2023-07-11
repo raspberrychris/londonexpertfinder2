@@ -1,5 +1,5 @@
 ---
-title: piano lessons
+title: Piano lessons
 ---
 
 I recently started taking piano lessons and I'm so glad I did! I've always wanted to learn how to play, but I never had the time or the money. With piano lessons, I'm able to learn at my own pace and in the comfort of my own home. The instructor is incredibly knowledgeable and patient, which makes learning a breeze. He's also very encouraging, which helps me stay motivated and excited about learning.

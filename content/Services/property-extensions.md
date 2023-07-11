@@ -1,5 +1,5 @@
 ---
-title: property extensions
+title: Property extensions
 ---
 
 I recently had a property extension built and I am so pleased with the results! The team at Property Extensions were professional, knowledgeable and incredibly helpful throughout the entire process. They took the time to explain every step of the process and answered all of my questions quickly and thoroughly.

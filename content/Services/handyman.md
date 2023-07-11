@@ -1,5 +1,5 @@
 ---
-title: handyman
+title: Handyman
 ---
 
 I recently had the pleasure of using the services of a handyman and I must say, I was thoroughly impressed. From the moment I called, the customer service was top-notch and the handyman was extremely professional and knowledgeable. He was able to quickly diagnose and repair the issue, and he even offered helpful advice on how to prevent future problems. He was also very friendly and courteous, which made the experience even better.

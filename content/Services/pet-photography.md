@@ -1,5 +1,5 @@
 ---
-title: pet photography
+title: Pet photography
 ---
 
 I recently had the pleasure of working with a pet photographer for my beloved pup, and I couldn't be more pleased with the results! The photographer was incredibly professional, patient, and understanding of my pup's needs. He was able to capture her personality perfectly in the photos, and I was amazed at how much detail he was able to capture.

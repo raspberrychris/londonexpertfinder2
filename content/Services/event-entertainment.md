@@ -1,5 +1,5 @@
 ---
-title: event entertainment
+title: Event entertainment
 ---
 
 I recently had the pleasure of experiencing event entertainment from a company that I had heard so much about. From the moment I heard about the company, I knew I had to give them a try. I was not disappointed.

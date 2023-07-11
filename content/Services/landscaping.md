@@ -1,5 +1,5 @@
 ---
-title: landscaping
+title: Landscaping
 ---
 
 I recently had the pleasure of working with a landscaping company and I have to say, it was an amazing experience! From start to finish, they made the process simple and stress-free. From the initial consultation, where they discussed my ideas and gave me helpful suggestions, to the actual installation, they were professional, knowledgeable, and efficient. The end result was a beautiful, lush landscape that I'm proud to show off.

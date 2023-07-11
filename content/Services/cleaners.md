@@ -1,5 +1,5 @@
 ---
-title: cleaners
+title: Cleaners
 ---
 
 I recently used the services of Cleaners and I have to say, I'm really impressed. The staff were friendly and professional, and the job they did was top-notch. My carpets look brand new and I'm really pleased with the results.

@@ -1,5 +1,5 @@
 ---
-title: basketball lessons
+title: Basketball lessons
 ---
 
 I recently took basketball lessons and it was an incredible experience. The instructor was knowledgeable and patient, taking the time to explain the fundamentals of the game and helping me to improve my skills. I was able to learn the basics of dribbling, shooting, and passing, and the instructor also helped me to develop strategies for playing defense.

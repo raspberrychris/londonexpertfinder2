@@ -1,5 +1,5 @@
 ---
-title: hip hop dance classes
+title: Hip hop dance classes
 ---
 
 I recently tried hip hop dance classes and I was blown away by the experience! The instructor was so knowledgeable and passionate about the art form and it was clear that he was dedicated to helping us learn the moves. He was patient and encouraging, and he made sure to explain the basics of the dance before diving into the more complex moves.

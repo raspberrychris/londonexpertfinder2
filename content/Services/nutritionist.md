@@ -1,5 +1,5 @@
 ---
-title: nutritionist
+title: Nutritionist
 ---
 
 I recently had the pleasure of working with a nutritionist and I must say, it was one of the best decisions I've ever made. I was looking for a way to improve my overall health and nutritionist was the perfect fit.

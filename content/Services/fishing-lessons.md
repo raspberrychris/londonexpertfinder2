@@ -1,5 +1,5 @@
 ---
-title: fishing lessons
+title: Fishing lessons
 ---
 
 I recently took fishing lessons and it was an incredible experience! The instructor was knowledgeable and passionate about fishing, and he was able to give me valuable advice and tips that I can use the next time I go out fishing. He also provided me with all the necessary equipment and showed me how to use it properly.

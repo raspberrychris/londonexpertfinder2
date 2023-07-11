@@ -1,5 +1,5 @@
 ---
-title: headshot photographers
+title: Headshot photographers
 ---
 
 I recently had the pleasure of working with a headshot photographer and I can confidently say that it was one of the best experiences I've ever had. The photographer was professional, friendly, and made me feel comfortable throughout the entire process. The quality of the photos was outstanding and I'm so happy with the results.

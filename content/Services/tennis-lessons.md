@@ -1,5 +1,5 @@
 ---
-title: tennis lessons
+title: Tennis lessons
 ---
 
 I recently took tennis lessons and I can honestly say that it was one of the best decisions I ever made. The instructor was knowledgeable and patient, and he was able to help me improve my technique and understanding of the game. He was also able to provide helpful tips and advice that I could use during my matches.

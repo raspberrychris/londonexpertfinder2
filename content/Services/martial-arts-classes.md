@@ -1,5 +1,5 @@
 ---
-title: martial arts classes
+title: Martial arts classes
 ---
 
 I have been attending martial arts classes for the past few months and I can honestly say that it has been one of the best decisions I have ever made. The classes are incredibly well-structured, and the instructors are knowledgeable and passionate about teaching the art of martial arts. 

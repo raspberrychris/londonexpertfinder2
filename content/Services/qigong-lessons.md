@@ -1,5 +1,5 @@
 ---
-title: qigong lessons
+title: Qigong lessons
 ---
 
 I recently started taking qigong lessons and I absolutely love it! It has been a great way to relax and de-stress after a long day. The instructor is very knowledgeable and patient, and he has helped me learn the basics of qigong in a short amount of time. I feel like I'm getting stronger and more flexible with each lesson.

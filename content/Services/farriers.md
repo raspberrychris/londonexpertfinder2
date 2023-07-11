@@ -1,5 +1,5 @@
 ---
-title: farriers
+title: Farriers
 ---
 
 I recently had the pleasure of using the services of a farrier, and I have to say I was incredibly impressed. Not only did they do a fantastic job of trimming and shoeing my horse, but they also took the time to explain the process and answer any questions I had. As someone who has never had to use a farrier before, I was pleasantly surprised by the level of professionalism and expertise they provided.

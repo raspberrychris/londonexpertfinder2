@@ -1,5 +1,5 @@
 ---
-title: party event planners
+title: Party event planners
 ---
 
 I recently had the pleasure of using party event planners for a special event and I can honestly say that they exceeded my expectations. From the moment I contacted them, they were friendly, professional and accommodating. They worked with me to create a custom package that was tailored to my needs and budget.

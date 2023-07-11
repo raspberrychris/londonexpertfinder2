@@ -1,5 +1,5 @@
 ---
-title: wedding dj
+title: Wedding DJ
 ---
 
 I recently hired a wedding DJ for my wedding and I couldn't be happier with the service they provided. The DJ was professional, organized, and had a great selection of music. They were able to keep the energy up throughout the night, and everyone was dancing and having a great time. The DJ was also great at interacting with the guests and making sure everyone was having a good time.

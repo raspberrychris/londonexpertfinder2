@@ -1,5 +1,5 @@
 ---
-title: event decorator and designing
+title: Event decorator and designing
 ---
 
 I recently had the pleasure of working with an event decorator and designer for a special occasion and I am so glad that I did! They provided a truly unique and creative experience that I won't soon forget.

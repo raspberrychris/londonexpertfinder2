@@ -1,5 +1,5 @@
 ---
-title: bathroom installation
+title: Bathroom installation
 ---
 
 I recently had my bathroom installation done by a company called Bathroom Installation. I was so pleased with the service I received! The staff were friendly, knowledgeable, and very professional. They took the time to explain everything to me and answer any questions I had. The installation process was quick and efficient, and the end result was beautiful.

@@ -4,7 +4,7 @@ title: How to start your own Cleaning Business (Ultimate guide)
 
 ### By Sandra Jennings
 
-Are you tired of working for someone else and ready to be your own boss? If so, starting a [cleaning business](https://londonexpertfinder.com/services/cleaners) may be perfect for you! As someone who launched my cleaning company five years ago, I can offer plenty of advice on how to get your own cleaning business up and running successfully. 
+Are you tired of working for someone else and ready to be your own boss? If so, starting a [cleaning business](/services/cleaners) may be perfect for you! As someone who launched my cleaning company five years ago, I can offer plenty of advice on how to get your own cleaning business up and running successfully. 
 
 With some planning, effort, and self-motivation, you can gain the freedom and flexibility of being your own boss in the lucrative cleaning industry. Follow this comprehensive guide to learn everything you need to know about starting a cleaning business from scratch.
 

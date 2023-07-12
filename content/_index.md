@@ -5,7 +5,7 @@ description: >-
 toc: true
 
 ---
-
+![logo][img/london-expert-finder.png]
 Welcome to London Expert Finder — your most reliable, all-inclusive portal to discovering the most recommended professionals across a broad spectrum of trades in London. We know that finding the right expert can often feel like searching for a needle in a haystack. But not anymore! We're here to simplify your search, connecting you with trusted, skilled, and highly-rated professionals in your city, all at your fingertips.
 
 Whether you're looking for an electrician to fix a faulty switch, a plumber to solve that pesky leak, or an experienced solicitor to handle legal matters, London Expert Finder is your one-stop resource. With us, you don't just find professionals — you find peace of mind, knowing you're hiring someone vetted, respected, and trusted by fellow Londoners.
@@ -1292,3 +1292,4 @@ I had the pleasure of ordering a wedding cake from this service, and I must say,
 The cake itself was absolutely stunning. It was a three-tier, white cake with a beautiful, intricate lace design. The cake was moist and flavorful, and the design was so intricate and detailed. Everyone at the wedding was so impressed with the cake, and it was definitely the highlight of the evening.
 
 I would highly recommend this service to anyone looking for a wedding cake. They are incredibly professional and attentive, and the quality of their cakes is second to none. They truly went above and beyond to make sure my special day was perfect. If you're looking for a wedding cake that is sure to impress, I would definitely recommend this service.[0]: https://londonexpertfinder.com/services/pet-grooming
+[1]: /img/london-expert-finder.png

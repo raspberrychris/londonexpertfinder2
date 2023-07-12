@@ -1073,11 +1073,6 @@ The decorator and designer was able to create a stunning atmosphere for my weddi
 Overall, I highly recommend the services of an event decorator and designer. They are able to bring your vision to life and create a unique and beautiful atmosphere for your special event. If you are looking for a professional and creative decorator and designer, I highly recommend them!
 
 
-## [Sellers](/services/sellers)
-⭐⭐⭐⭐⭐
-I used the services of Sellers and I was extremely impressed by their professionalism and attention to detail. They provided me with a comprehensive service that included everything from helping me find the right property to negotiating the best price. They were always available to answer any questions I had, and they made sure that I was kept informed throughout the entire process. I would highly recommend Sellers to anyone looking to buy or sell a property. They are knowledgeable, efficient, and provide excellent customer service. I would definitely use their services again in the future.
-
-
 ## [Pet Photography](/services/pet-photography)
 ⭐⭐⭐⭐⭐
 I had the pleasure of working with a pet photographer, and I must say, it was an amazing experience! The photographer was professional, friendly, and most importantly, incredibly talented. They were able to capture the personality of my pet in a way that I never thought possible. The photos were beautiful and I couldn't be happier with the results.

@@ -6,7 +6,7 @@ toc: true
 
 ---
 
-![London Expert Finder Logo](../assets/img/london-expert-finder.png)
+![London Expert Finder Logo](/assets/img/london-expert-finder.png)
 
 > Welcome to London Expert Finder — your most reliable, all-inclusive portal to discovering the most recommended professionals across a broad spectrum of trades in London. We know that finding the right expert can often feel like searching for a needle in a haystack. But not anymore! We're here to simplify your search, connecting you with trusted, skilled, and highly-rated professionals in your city, all at your fingertips.
 

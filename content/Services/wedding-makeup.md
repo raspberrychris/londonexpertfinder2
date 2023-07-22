@@ -9,3 +9,5 @@ The makeup she did for me was absolutely stunning. She was able to bring my visi
 My bridesmaids were also thrilled with their makeup. She was able to create a look that was perfect for each of them. Everyone looked so beautiful and the makeup lasted all night.
 
 I would highly recommend this makeup artist for any special occasion. She is truly talented and her attention to detail is second to none. If you're looking for a professional makeup artist to make you look and feel your best, I would definitely recommend her.
+
+[![wedding makeup](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)

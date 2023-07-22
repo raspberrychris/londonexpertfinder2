@@ -7,3 +7,5 @@ I recently had the pleasure of using a DJ hire service for my birthday party and
 I would highly recommend this service to anyone looking to add a little extra fun to their event. The DJ was very accommodating and willing to take requests. He was also very knowledgeable about the music he was playing and was able to provide us with a great selection of songs.
 
 Overall, I was extremely pleased with the service and would definitely recommend it to anyone looking for a great DJ hire experience. If you're looking for an unforgettable night of music and dancing, I highly suggest giving this service a try. You won't be disappointed!
+
+[![dj-hire](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)

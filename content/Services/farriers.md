@@ -7,3 +7,5 @@ I recently had the pleasure of using the services of a farrier, and I have to sa
 The farrier was very knowledgeable and explained the process in detail, which made me feel comfortable and confident that my horse was in good hands. They took the time to discuss the best options for my horse’s hooves and answered all of my questions. The farrier also made sure that the job was done properly and that my horse was comfortable throughout the process.
 
 Overall, I was very pleased with the service I received from the farrier. If you’re looking for a reliable and knowledgeable farrier, I would highly recommend giving them a try. Their expertise and professionalism are second to none, and I’m sure you’ll be just as impressed as I was.
+
+[![farriers](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)

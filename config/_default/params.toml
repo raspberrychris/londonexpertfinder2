@@ -9,7 +9,7 @@ colorScheme = "congo"
 defaultAppearance = "light" # valid options: light or dark
 autoSwitchAppearance = false
 
-enableSearch = false
+enableSearch = true
 enableCodeCopy = false
 enableImageLazyLoading = true
 
@@ -18,7 +18,7 @@ fingerprintAlgorithm = "sha256"
 
 [header]
   layout = "basic" # valid options: basic, hamburger, hybrid, custom
-  logo = "img/london-expert-finder.png"
+  logo = "/london-expert-finder.png"
   # logoDark = "img/dark-logo.jpg"
   showTitle = false
 

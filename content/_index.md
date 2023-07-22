@@ -13,6 +13,10 @@ With London Expert Finder, navigate the world of professionals with ease, saving
 
 Let London Expert Finder become your reliable partner in discovering London’s top-rated professionals. Here’s to successful ventures and getting things done with the best in the business! Welcome aboard, and happy hunting!
 
+{{< alert >}}
+**London Expert Finders** is supported by readers. We may earn a commission when you buy services with our links.
+{{< /alert >}}
+
 ## **[Pet Grooming](/services/pet-grooming) 🐶**
 
 ![640-cute-little-puppy-in-bathroom-illustration-ai-generative.jpg](/640-cute-little-puppy-in-bathroom-illustration-ai-generative.jpg)

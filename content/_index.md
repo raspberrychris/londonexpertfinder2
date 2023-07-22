@@ -16,7 +16,7 @@ Let London Expert Finder become your reliable partner in discovering London’s 
 
 ## **[Pet Grooming](https://londonexpertfinder.com/services/pet-grooming)**
 
-![640-cute-little-puppy-in-bathroom-illustration-ai-generative.jpg](/assets/img/londonexperfinders/640-cute-little-puppy-in-bathroom-illustration-ai-generative.jpg)
+![640-cute-little-puppy-in-bathroom-illustration-ai-generative.jpg](../assets/img/londonexperfinders/640-cute-little-puppy-in-bathroom-illustration-ai-generative.jpg)
 
 ⭐⭐⭐⭐⭐ 
 

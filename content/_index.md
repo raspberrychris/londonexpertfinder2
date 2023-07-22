@@ -42,6 +42,7 @@ Overall, I had a wonderful experience with them and would recommend them to anyo
 
 [![cleaners](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
+---
 
 ## **[Gardeners](/services/gardeners)**
 
@@ -65,6 +66,8 @@ Overall, I was completely satisfied with their services, and I would use them ag
 
 [![pet-sitting](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
+---
+
 ## **[Car Cleaning Valet](/services/car-cleaning-valet)**
 
 ![1920-woman-hand-wearing-orange-gloves-with-yellow-sponge-washing-wheel-modern-car-or-cleaning-automobile-car-wash-concept.jpg](/1920-woman-hand-wearing-orange-gloves-with-yellow-sponge-washing-wheel-modern-car-or-cleaning-automobile-car-wash-concept.jpg)
@@ -78,6 +81,8 @@ The car cleaning valet did an amazing job. They cleaned every inch of the car, f
 This is the kind of car cleaning service I would recommend to my friends without a second thought. They did a fantastic job and I would definitely use them again. I’m so glad I chose them and I’m sure you will be too!
 
 [![car-cleaning-valet](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
+
+---
 
 ## **[Accountants](/services/accountants)**
 
@@ -119,7 +124,6 @@ I had the opportunity to work with a [personal trainer](/services/personal-train
 
 If you want to reach your fitness goals, hiring a personal trainer is one of the best things you can do right now. Not only will you learn proper form and technique, but you will also be motivated and pushed to reach your goals. You will get all the support and encouragement you need, and you will be able to get the most out of your workouts.
 
-
 [![personal-trainer](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
 ---
@@ -131,7 +135,6 @@ If you want to reach your fitness goals, hiring a personal trainer is one of the
 ### ⭐⭐⭐⭐⭐ 
 
 I had a piece of art that I wanted to frame, and I decided to try a [picture framing service](/services/picture-framing). They did an awesome job, cut the frame with perfect precision, and fitted it to the artwork excellently. The colors were vibrant and true to the original too. The picture framer was knowledgeable and friendly and clearly explained the different framing options that were available. They even gave me helpful tips on how to care for the frame and artwork. I was very impressed with the level of service I received, and I would highly recommend this picture framing service to anyone looking for a quality framing job.
-
 
 [![picture-framing](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
@@ -158,9 +161,9 @@ I used the services of a [local plumber](/services/plumbers) to unclog my toilet
 
 It was nice having my laptop repaired by this [computer repair service](/services/computer-repair). I had been having some issues with my laptop, and I was worried I would have to replace it, but the technician was able to quickly diagnose the problem and get it fixed in no time. The technician was very knowledgeable and friendly, and he was able to explain the issue in a way that was easy to understand. He also told me how to prevent that issue in the future. I’m satisfied with the service they offered and would wholeheartedly recommend them. If you’re looking for a reliable and affordable computer repair service, by all means give this one a try.
 
-
 [![computer-repair](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
+---
 
 ## **[Piano Lessons](/services/piano-lessons)**
 
@@ -174,9 +177,9 @@ The lessons have been very enjoyable and I have seen a lot of progress in my pla
 
 Whether you’re a beginner pianist looking to take your first piano lesson or an advanced pianist trying to brush up on your skills, this instructor has got you covered. The lessons are fun and engaging, and you will see results quickly.
 
-
 [![piano-lessons](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
+---
 
 ## **[Dog Walking](/services/dog-walking)**
 
@@ -190,9 +193,9 @@ The walk itself was great. He took my dog on a nice long walk and made sure to s
 
 Overall, I was very impressed with the service and would highly recommend it to anyone looking for a reliable and trustworthy dog walking service. It’s a great way to give your dog the exercise and attention they need while you’re away. If you’re looking for a great dog walking service, I would definitely recommend giving this one a try.
 
-
 [![dog-walking](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
+---
 
 ## **[Cake Makers](/services/cake-makers)**
 
@@ -205,6 +208,7 @@ I ordered a cake from a [local cake maker](/services/cake-makers) and I was abso
 
 [![cake-makers](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
+---
 
 ## **[Martial Arts Classes](/services/martial-arts-classes)**
 
@@ -218,9 +222,9 @@ The classes are also a great way to stay in shape and have fun at the same time.
 
 If you’re looking to get in shape, learn self-defense, or just have fun, try this class out. The classes are a great way to challenge yourself and improve your physical and mental health. I’m looking forward to continuing my martial arts journey and I can’t wait to see what else I can learn.
 
-
 [![martial-arts-classes](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
+---
 
 ## **[Metal Fabrication](/services/metal-fabrication)**
 
@@ -230,9 +234,9 @@ If you’re looking to get in shape, learn self-defense, or just have fun, try t
 
 After careful consideration, I chose to work with this [metal fabrication company](/services/metal-fabrication) and I am so glad that I did! Their work was top-notch and the quality of their products was outstanding. They were able to take my ideas and turn them into reality. The team was professional and knowledgeable, and they were able to help me every step of the way. From the initial design process to the final product, the process was smooth and efficient. I am so pleased with the results and would highly recommend this company to anyone looking for quality metal fabrication services. If you are looking for a reliable and experienced metal fabrication company, this is the one to go with.
 
-
 [![metal-fabrication](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
+---
 
 ## **[Dog Training](/services/dog-training)**
 
@@ -244,9 +248,9 @@ I decided it was time to train my dog. I couldn’t do it myself so I decided to
 
 I recommend this dog training service to anyone who wants to develop a better relationship with their pet. It’s a great way to strengthen the bond between you and your dog while also teaching them how to behave properly. With the help of a professional, you can have a well-behaved pup in no time. Don’t hesitate to give it a try - you won’t regret it!
 
-
 [![dog-training](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
+---
 
 ## **[Locksmith](/services/locksmith)**
 
@@ -260,9 +264,9 @@ Locksmiths services can’t get any better than this. He was professional, knowl
 
 If you are ever in need of a locksmith, I highly recommend using this one. He goes above and beyond to make sure you are completely satisfied. I would definitely use this locksmith again!
 
-
 [![locksmith](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
 
+---
 
 ## **[Landscaping](/services/landscaping)**
 

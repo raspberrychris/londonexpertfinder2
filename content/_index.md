@@ -1,7 +1,6 @@
 ---
 title: London Expert Finder
-description: >-
- Find your London Expert today!
+description: Find your London Expert today!
 toc: true
 ---
 

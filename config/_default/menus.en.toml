@@ -21,8 +21,13 @@
   weight = 20
 
 [[main]]
+  name = "Location"
+  pageRef = "Location"
+  weight = 20
+
+[[main]]
   identifier = "search"
-  weight = 99
+  weight = 40
   [main.params]
     action = "search"
 

@@ -12,5 +12,4 @@ I took a [qigong lesson](https://londonexpertfinder.com/services/qigong-lessons)
 
 I found the qigong lesson to be incredibly beneficial and I highly recommend it to anyone looking to improve their physical and mental health. Not only did I learn valuable techniques, but I also felt a sense of peace and relaxation that I hadn’t experienced before. I would encourage anyone who is interested in learning more about qigong to take a lesson and see the amazing benefits for themselves.
 
-
-[![qigong-lessons](<https://dabuttonfactory.com/button.png?t=GET+QIGONG+LESSONS&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
+[![qigong-lessons](<https://dabuttonfactory.com/button.png?t=GET+QIGONG+LESSONS&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://londonexpertfinder.com/link>)

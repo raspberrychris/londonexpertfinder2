@@ -10,4 +10,4 @@ After the session, I felt a sense of peace and clarity. I felt like I had a newf
 
 I would highly recommend hypnotherapy to anyone looking to improve their mental and emotional wellbeing. It is an incredibly powerful tool that can help you to unlock your potential and create a more positive outlook on life. If you're looking for a way to improve your mental and emotional wellbeing, I highly recommend giving hypnotherapy a try.
 
-[![hypnotherapy](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc39>)
+[![hypnotherapy](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://londonexpertfinder.com/link>)

@@ -37,9 +37,9 @@
 
 [[footer]]
    name = "About"
-   pageRef = "about"
+   pageRef = "About"
    weight = 20
-   
+
 [[footer]]
    name = "Affiliate Disclaimer"
    pageRef = "affiliate-disclaimer"

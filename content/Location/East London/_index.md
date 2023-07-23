@@ -1,3 +1,3 @@
 ---
-title: "West London"
+title: "East London"
 ---

@@ -2,6 +2,8 @@
 title: Nutritionist
 ---
 
+![1920-nutritionist-doctor-with-various-healthy-fresh-vegetables-for-patient.jpg](/1920-nutritionist-doctor-with-various-healthy-fresh-vegetables-for-patient.jpg)
+
 I recently had the pleasure of working with a nutritionist and I must say, it was one of the best decisions I've ever made. I was looking for a way to improve my overall health and nutritionist was the perfect fit.
 
 My nutritionist was incredibly knowledgeable and professional. She was able to provide me with personalized advice and tailored meal plans that were tailored to my individual needs. She also provided me with helpful tips and tricks on how to make healthier food choices.

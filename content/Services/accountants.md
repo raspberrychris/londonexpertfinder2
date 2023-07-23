@@ -2,6 +2,8 @@
 title: Accountants
 ---
 
+![1920-portrait-of-a-female-accountant-using-a-calculator-and-laptop-to-calculate-balance-using-graphs-for-customers.jpg](/1920-portrait-of-a-female-accountant-using-a-calculator-and-laptop-to-calculate-balance-using-graphs-for-customers.jpg)
+
 I recently had the pleasure of working with an accountant for the first time and I am so glad I did! The service I received was top notch and I can confidently say that I am now in a much better financial position than I was before. 
 
 The accountant was extremely knowledgeable and professional, and was able to answer all of my questions in a timely manner. They were also able to provide me with valuable advice and guidance on how to manage my finances more effectively. 

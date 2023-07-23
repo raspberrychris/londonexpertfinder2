@@ -2,6 +2,8 @@
 title: Computer repair
 ---
 
+![1920-the-asian-man-was-taking-out-a-broken-computer-to-repair-it.jpg](/1920-the-asian-man-was-taking-out-a-broken-computer-to-repair-it.jpg)
+
 I recently had the pleasure of using the computer repair service at ABC Computers. From start to finish, the experience was top-notch. The technician was knowledgeable, friendly, and extremely helpful. He was able to diagnose and repair my computer quickly and efficiently.
 
 The quality of the work was outstanding. My computer was running like new after the repair. The technician also took the time to explain the problem and the repair process in detail. He was patient and answered all of my questions.

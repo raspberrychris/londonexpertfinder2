@@ -2,6 +2,8 @@
 title: Security guards
 ---
 
+![1920-security-guard-outside.jpg](/1920-security-guard-outside.jpg)
+
 As a business owner, I understand the importance of having security guards on site. I recently hired a security guard service and was extremely pleased with the results. They were professional, courteous, and attentive. They provided a sense of security that I had not felt before.
 
 The security guards were always on time and ready to work. They were trained to handle any situation that may arise. They monitored the premises and made sure that everyone was safe. They were also able to respond quickly to any emergency situation that occurred.

@@ -2,6 +2,8 @@
 title: Glaziers
 ---
 
+![1920-a-working-person-in-a-furniture-industry-is-cutting-a-mirror-with-a-glass-cutter.jpg](/1920-a-working-person-in-a-furniture-industry-is-cutting-a-mirror-with-a-glass-cutter.jpg)
+
 I recently had the pleasure of using the services of a glazier, and I must say I was very impressed. From the very first phone call, I was treated with respect and professionalism. The glazier was knowledgeable, friendly, and provided excellent customer service.
 
 The work they did was of the highest quality, and they completed the job quickly and efficiently. I was amazed at how quickly they were able to get the job done. They were also very accommodating and willing to work with me to ensure that the job was done correctly and to my satisfaction.

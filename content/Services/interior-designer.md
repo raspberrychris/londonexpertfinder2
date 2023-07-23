@@ -2,6 +2,8 @@
 title: Interior designer
 ---
 
+![1920-minimal-interior-style-poster-mock-up-the-living-room-wall-copy-space-3d-rendering.jpg](/1920-minimal-interior-style-poster-mock-up-the-living-room-wall-copy-space-3d-rendering.jpg)
+
 As an interior designer, I can honestly say that the service I provide is second to none. With my years of experience and my unique eye for design, I'm able to create beautiful, functional spaces that my clients love.
 
 I'm passionate about creating spaces that are both aesthetically pleasing and functional. I take the time to understand my clients' needs and preferences, and then I use my expertise to design a space that meets their wants and needs. I'm also knowledgeable about the latest trends and styles in interior design, so I'm able to create a space that is both fashionable and timeless.

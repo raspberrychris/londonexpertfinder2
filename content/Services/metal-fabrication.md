@@ -2,6 +2,8 @@
 title: Metal fabrication
 ---
 
+![1920-a-welder-in-a-protective-helmet-welds-an-iron-seam.jpg](/1920-a-welder-in-a-protective-helmet-welds-an-iron-seam.jpg)
+
 I recently had the pleasure of working with a metal fabrication company and I could not be more pleased with the results. The team was incredibly knowledgeable and helpful throughout the entire process. They took the time to understand my needs and worked with me to create a custom solution that fit my budget and timeline.
 
 The finished product was exactly what I was looking for and I could not be happier. The craftsmanship and attention to detail was outstanding. I was also impressed with the level of customer service I received. Everyone was friendly and accommodating, and they were always available to answer any questions I had.

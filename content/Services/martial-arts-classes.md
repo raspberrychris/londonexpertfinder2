@@ -2,6 +2,8 @@
 title: Martial arts classes
 ---
 
+![1920-portrait-kids-practicing-martial-arts-karate.jpg](/1920-portrait-kids-practicing-martial-arts-karate.jpg)
+
 I have been attending martial arts classes for the past few months and I can honestly say that it has been one of the best decisions I have ever made. The classes are incredibly well-structured, and the instructors are knowledgeable and passionate about teaching the art of martial arts. 
 
 The classes are tailored to the individual needs of each student, so no matter what your level of experience is, you will be able to learn and grow. The instructors are patient and encouraging, and they make sure that everyone is comfortable and having fun. 

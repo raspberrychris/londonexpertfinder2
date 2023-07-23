@@ -945,7 +945,6 @@ The quality of the repair was top-notch. My shoes looked like new when I picked 
 
 I can’t fault this service because it was absolutely perfect. It was fast too, and the results were amazing. If you’re looking for a reliable and professional shoe repair service, I would definitely recommend this shop.
 
-
 [![shoe-repair](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](</services/shoe-repair>)
 
 ---
@@ -1992,18 +1991,6 @@ If you have an upcoming wedding or event, consider hiring these guys. They are a
 
 ---
 
-## **[Sellers](/services/sellers)**
-
-![1920-home-insurance-concept-and-bank-loan-approval-contract-real-estate-business-appraisal-property-value-finding-location-invest-in-real-estate-mortgages-and-bank-loans-buying-real-estate.jpg](/1920-home-insurance-concept-and-bank-loan-approval-contract-real-estate-business-appraisal-property-value-finding-location-invest-in-real-estate-mortgages-and-bank-loans-buying-real-estate.jpg)
-
-### ⭐⭐⭐⭐⭐ 
-
-> I used the services of [Sellers](/services/sellers) and I was extremely impressed by their professionalism and sales prowess. They provided me with a comprehensive service that included everything from helping me find the right property to negotiating the best price. They were always available to answer any questions I had, and they made sure that I was kept informed throughout the entire process. I would highly recommend Sellers to anyone looking to buy or sell a property. They know what they’re doing and provide excellent customer service. I would definitely use their services again in the future.
-
-[![sellers](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](</services/sellers>)
-
----
-
 ## **[Pet Photography](/services/pet-photography)**
 
 ![1920-silver-tabby-cat-sitting-on-green-background.jpg](/1920-silver-tabby-cat-sitting-on-green-background.jpg)
@@ -2268,7 +2255,7 @@ I would  recommend this company to anyone looking for high-quality video product
 
 ### ⭐⭐⭐⭐⭐ 
 
-I hired a [wedding planner](/services/wedding-planners) to help me plan my special day and they planned it better than I ever could! The wedding planner was so helpful in making sure everything was taken care of and that I didn’t have to worry about a thing. They provided me with a list of vendors to choose from, gave me advice on the best venues, and even helped me stay within my budget. They were always available to answer any questions I had and provided me with all the information I needed to make sure my wedding was perfect.
+> I hired a [wedding planner](/services/wedding-planners) to help me plan my special day and they planned it better than I ever could! The wedding planner was so helpful in making sure everything was taken care of and that I didn’t have to worry about a thing. They provided me with a list of vendors to choose from, gave me advice on the best venues, and even helped me stay within my budget. They were always available to answer any questions I had and provided me with all the information I needed to make sure my wedding was perfect.
 
 If you’re planning a wedding, I highly recommend hiring a wedding planner. They will lift the burden off you so you can focus on enjoying your special day. They can help you find the perfect vendors, stay within your budget, and make sure your special day is everything you dreamed it would be. I’m so thankful for my wedding planner and I wouldn’t have been able to plan my wedding without them.
 

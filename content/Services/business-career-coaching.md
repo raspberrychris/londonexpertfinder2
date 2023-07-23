@@ -2,6 +2,8 @@
 title: Business career coaching
 ---
 
+![1920-internet-online-education-and-learning-concept-personal-development-plan-make-business-successful-adding-new-career-skills-business-education-internet-lessons-e-learning-webinars.jpg](/1920-internet-online-education-and-learning-concept-personal-development-plan-make-business-successful-adding-new-career-skills-business-education-internet-lessons-e-learning-webinars.jpg)
+
 I recently had the opportunity to experience a business career coaching session with an amazing coach. I was so impressed with the level of knowledge and expertise that the coach had. They asked me thoughtful questions and really took the time to understand my goals and dreams. They then provided me with tangible and actionable steps to take to help me reach my goals.
 
 The coach was also able to provide me with resources and contacts that could help me further my business career. I was able to gain valuable insight into the industry and the various paths I could take to reach my goals.

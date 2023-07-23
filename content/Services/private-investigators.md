@@ -2,6 +2,8 @@
 title: Private investigators
 ---
 
+![1920-businesswoman-or-accountant-working-with-calculator-for-investigation-of-corruption-account.jpg](/1920-businesswoman-or-accountant-working-with-calculator-for-investigation-of-corruption-account.jpg)
+
 I recently had the opportunity to use the services of a private investigator and I was extremely impressed. The investigator was professional, knowledgeable, and incredibly discreet. They were able to provide me with the information I needed quickly and efficiently.
 
 The investigator was able to uncover information that I would have never been able to find on my own. They were able to provide me with a comprehensive report that was both accurate and detailed. I was amazed at how much information they were able to uncover in such a short amount of time.

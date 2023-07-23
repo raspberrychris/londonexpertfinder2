@@ -2,6 +2,8 @@
 title: Tree surgeon
 ---
 
+![1920-majestic-view-of-tree-trunk-to-green-leaves-of-big-tree-in-spring-summer-forest-with-sunlight-fresh-environment-in-park-or-summer-garden-forest-tree-with-bright-green-leaves-on-sunny-day.jpg](/1920-majestic-view-of-tree-trunk-to-green-leaves-of-big-tree-in-spring-summer-forest-with-sunlight-fresh-environment-in-park-or-summer-garden-forest-tree-with-bright-green-leaves-on-sunny-day.jpg)
+
 I recently had the pleasure of working with a tree surgeon, and I was incredibly impressed with the quality of service I received. From the initial consultation to the completion of the project, the tree surgeon was professional, knowledgeable, and incredibly efficient.
 
 The tree surgeon was able to quickly identify the problem with my tree and provided me with a detailed plan of action. They worked quickly and efficiently to remove the dead branches and trim the tree back to a healthier size. I was amazed at the difference after the work was completed.

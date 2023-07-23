@@ -2,6 +2,8 @@
 title: Pilates classes
 ---
 
+![1920-group-of-asian-women-stretching-in-yoga-class-group-of-girls-doing-pilates-exercises-at-the-gym.jpg](/1920-group-of-asian-women-stretching-in-yoga-class-group-of-girls-doing-pilates-exercises-at-the-gym.jpg)
+
 I recently attended a Pilates class and it was an amazing experience! I had heard so much about Pilates and was excited to finally try it for myself.
 
 The instructor was incredibly knowledgeable and patient. She explained each exercise in detail and made sure that everyone was doing the moves correctly. She also gave us modifications for each exercise so that we could adjust the intensity of the workout.

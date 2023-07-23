@@ -2,6 +2,8 @@
 title: Web design
 ---
 
+![1920-creative-web-design-studio-with-flying-web-page-layout-elements-concept.jpg](/1920-creative-web-design-studio-with-flying-web-page-layout-elements-concept.jpg)
+
 I recently had the pleasure of working with a web design company to create a website for my business. From the beginning, they were professional, friendly, and incredibly knowledgeable about the web design process.
 
 They took the time to understand my needs and goals for the website, and then created a design that was modern, attractive, and highly functional. The website was easy to navigate and had a great user experience.

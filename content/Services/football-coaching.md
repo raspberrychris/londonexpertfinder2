@@ -2,6 +2,8 @@
 title: Football coaching
 ---
 
+![1920-soccer-ball-and-sports-teacher-and-student-background.jpg](/1920-soccer-ball-and-sports-teacher-and-student-background.jpg)
+
 I recently had the pleasure of experiencing football coaching with a local team and I'm so glad I did! The coaching was top-notch and the team was incredibly welcoming.
 
 The coach was knowledgeable and passionate about the game, and he gave us a great overview of the basics of football. He also provided us with drills and exercises to help us improve our skills and gave us plenty of feedback and advice.

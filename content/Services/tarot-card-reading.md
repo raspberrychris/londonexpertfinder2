@@ -2,6 +2,8 @@
 title: Tarot card reading
 ---
 
+![1920-young-girl-in-headscarf-pose-holding-tarot-cards.jpg](/1920-young-girl-in-headscarf-pose-holding-tarot-cards.jpg)
+
 I recently had a tarot card reading and it was a truly amazing experience. I was a bit skeptical at first, but the reader was very professional and knowledgeable. She was able to provide me with insights into my life that I wouldn't have been able to access on my own. She was able to provide me with clarity and direction that I had been seeking for a long time.
 
 The tarot cards were used to provide me with a deeper understanding of my life and the decisions I was making. She was able to provide me with a better understanding of my current situation and how to move forward. I was able to gain insight into my relationships, career, and life path.

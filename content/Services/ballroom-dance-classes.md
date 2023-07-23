@@ -2,6 +2,8 @@
 title: Ballroom dance classes
 ---
 
+![1920-skillful-dancers-performing-in-the-dark-room-under-the-concert-light-and-smoke-sensual-couple-performing-an-artistic-and-emotional-contemporary-dance.jpg](/1920-skillful-dancers-performing-in-the-dark-room-under-the-concert-light-and-smoke-sensual-couple-performing-an-artistic-and-emotional-contemporary-dance.jpg)
+
 I took ballroom dance classes recently and I can honestly say it was one of the best decisions I ever made. I was a bit hesitant at first, but the instructor was so patient and encouraging that I soon felt comfortable. The classes were well-structured and the instructor was knowledgeable and passionate about teaching us the different steps. I was amazed at how quickly I was able to pick up the moves and I felt like I was really improving each week.
 
 At the end of the course, I was able to put together a routine that I could perform with my partner. We were able to show off our new skills at a local dance competition and we even won a few awards!

@@ -2,6 +2,8 @@
 title: Hypnotherapy
 ---
 
+![1920-hypnosis-write-on-sticky-notes-isolated-on-wooden-table.JPG](/1920-hypnosis-write-on-sticky-notes-isolated-on-wooden-table.jpg)
+
 I recently had the opportunity to experience hypnotherapy and it was an incredibly positive experience. From the moment I walked into the office, I felt like I was in a safe and comfortable environment. The practitioner was very knowledgeable and made sure to explain the process to me in detail before we began. 
 
 The hypnotherapy session itself was incredibly relaxing. I felt like I was in a trance-like state and the practitioner's voice was very soothing. I was able to focus on the positive thoughts and feelings that I wanted to bring into my life. 

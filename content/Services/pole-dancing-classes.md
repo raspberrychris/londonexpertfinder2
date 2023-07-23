@@ -2,6 +2,8 @@
 title: Pole dancing classes
 ---
 
+![1920-woman-exercise-pole-dance-on-gray-background.jpg](/1920-woman-exercise-pole-dance-on-gray-background.jpg)
+
 I recently took pole dancing classes and I can honestly say it was one of the best decisions I have ever made! Pole dancing is a great way to get fit, learn new moves and have fun at the same time. The classes I took were well-structured and taught by experienced instructors who were very knowledgeable and encouraging. They taught me the basics of pole dancing, from body positioning to tricks and spins. I felt comfortable in the class and was able to progress at my own pace.
 
 The classes also gave me the opportunity to meet other people who shared my passion for pole dancing. We all had different levels of experience, but we all supported each other and had a lot of fun. I felt like I was part of a community and it was great to be able to learn from each other.

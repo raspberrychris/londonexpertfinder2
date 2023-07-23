@@ -2,6 +2,8 @@
 title: Aerial installation repairs
 ---
 
+![1920-educational-satellite-dish-installed-in-elementary-schools-in-rural-thailand-used-for-teaching-in-schools-with-insufficient-teachers-and-there-are-not-enough-learning-materials.jpg](/1920-educational-satellite-dish-installed-in-elementary-schools-in-rural-thailand-used-for-teaching-in-schools-with-insufficient-teachers-and-there-are-not-enough-learning-materials.jpg)
+
 I recently had the pleasure of working with the team at Aerial Installation Repairs. I was in need of a new aerial installation for my home and was looking for a reliable service provider. After doing some research, I decided to give Aerial Installation Repairs a try.
 
 I'm so glad I did! The team was professional, knowledgeable, and very helpful. They were able to quickly assess my needs and provide me with the best solution for my situation. The installation was completed quickly and efficiently, and I was very pleased with the results.

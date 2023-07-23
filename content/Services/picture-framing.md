@@ -2,6 +2,8 @@
 title: Picture framing
 ---
 
+![1920-white-empty-photo-frame-mockup-with-mouse-ear-chickweed-flowers-on-blue-background.jpg](/1920-white-empty-photo-frame-mockup-with-mouse-ear-chickweed-flowers-on-blue-background.jpg)
+
 I recently had a great experience using a picture framing service. The service was efficient, professional and reasonably priced. The staff was friendly and helpful throughout the process. They took the time to explain the different options available and helped me choose the best frame for my artwork.
 
 The finished product was beautiful and I was very pleased with the results. The frame was well-made and the colors were perfect. The staff was also very helpful in suggesting the best way to hang the frame.

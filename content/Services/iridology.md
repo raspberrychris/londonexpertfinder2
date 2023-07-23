@@ -2,6 +2,8 @@
 title: Iridology
 ---
 
+![1920-examination-iridology-a-female-child.jpg](/1920-examination-iridology-a-female-child.jpg)
+
 I recently had the opportunity to learn more about Iridology and I'm so glad I did! Iridology is a fascinating science that studies the eye to gain insight into a person's health. It's a non-invasive method that can help identify health issues and provide guidance on how to address them.
 
 I was amazed at how much information can be gleaned from the eyes. The iridologist can look at the structure, color and markings of the iris to assess the health of the body. It can be used to detect areas of weakness, toxicity, inflammation, and organ stress.

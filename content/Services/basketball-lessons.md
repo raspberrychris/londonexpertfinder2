@@ -2,6 +2,8 @@
 title: Basketball lessons
 ---
 
+![1920-basketball-player-silhouette-at-sunset-basketball-player-shoots-a-shot-sport-basketball-concept (1).jpg](/1920-basketball-player-silhouette-at-sunset-basketball-player-shoots-a-shot-sport-basketball-concept_(1).jpg)
+
 I recently took basketball lessons and it was an incredible experience. The instructor was knowledgeable and patient, taking the time to explain the fundamentals of the game and helping me to improve my skills. I was able to learn the basics of dribbling, shooting, and passing, and the instructor also helped me to develop strategies for playing defense.
 
 The lessons were fun and engaging, and I felt like I was really learning something. The instructor was also able to give me feedback on my performance, which was really helpful. I felt like I was making progress with each lesson and I was motivated to keep improving.

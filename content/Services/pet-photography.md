@@ -2,6 +2,8 @@
 title: Pet photography
 ---
 
+![1920-silver-tabby-cat-sitting-on-green-background.jpg](/1920-silver-tabby-cat-sitting-on-green-background.jpg)
+
 I recently had the pleasure of working with a pet photographer for my beloved pup, and I couldn't be more pleased with the results! The photographer was incredibly professional, patient, and understanding of my pup's needs. He was able to capture her personality perfectly in the photos, and I was amazed at how much detail he was able to capture.
 
 The photos were of the highest quality and I was able to get prints of them in a variety of sizes. The photographer was also able to provide me with digital copies of the photos so I could share them with friends and family.

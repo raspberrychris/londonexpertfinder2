@@ -2,6 +2,8 @@
 title: Greenhouse services
 ---
 
+![1920-flower-culture-in-a-greenhouse.jpg](/1920-flower-culture-in-a-greenhouse.jpg)
+
 I recently had the pleasure of using Greenhouse Services for my home. I was amazed at the quality of the service they provided. From the initial consultation to the finished product, I was impressed with the attention to detail and the professionalism of the entire team.
 
 The process was straightforward and efficient. They were able to provide me with a detailed plan that was tailored to my needs and budget. They also took the time to explain the various options and their benefits.

@@ -2,6 +2,8 @@
 title: Signwriting
 ---
 
+![1920-close-up-of-young-man-in-casual-cloth-hands-writing-down-on-the-notepad-notebook-using-ballpoint-pen-on-the-table.jpg](/1920-close-up-of-young-man-in-casual-cloth-hands-writing-down-on-the-notepad-notebook-using-ballpoint-pen-on-the-table.jpg)
+
 I recently started learning signwriting and I'm so glad I did! Signwriting is an amazing way to communicate with the deaf and hard of hearing community. It's a visual language that uses symbols to represent the handshapes, facial expressions, and body movements used in sign language. It's a great way to bridge the gap between hearing and non-hearing people.
 
 I was a bit intimidated at first, but the SignWriting website made it really easy to get started. They have a great selection of tutorials and resources that make it easy to learn the basics. I was able to pick up the basics in no time and now I'm able to communicate with deaf and hard of hearing people with ease.

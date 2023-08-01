@@ -4,7 +4,7 @@ description: Discover the amazing benefits of using gardening services in North 
 url: gardening-services-north-london
 ---
 
-![1920-gardener-scissors-on-the-grass.jpg](/Gardening%20Services%20North%20London%20c0fec42597ea422bb23dbcd1dcb7410a/1920-gardener-scissors-on-the-grass.jpg)
+![1920-gardener-scissors-on-the-grass.jpg](/1920-gardener-scissors-on-the-grass.jpg)
 
 North London is home to some beautiful parks, gardens and green spaces that provide tranquility and beauty for residents and visitors. However, maintaining a gorgeous garden takes time, effort and knowledge. That's why hiring a [professional gardening service](https://londonexpertfinder.com/services/gardeners/) can be invaluable for North London homes and businesses. Here's an overview of the benefits of gardening services and what to look for when hiring in North London.
 

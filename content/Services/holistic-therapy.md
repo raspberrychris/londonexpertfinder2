@@ -8,4 +8,4 @@ I recently had the pleasure of experiencing a holistic therapy session and I can
 
 Overall, I would highly recommend holistic therapy to anyone looking to find a way to relax and unwind. It is a great way to reconnect with your body and mind and to find a sense of peace and balance. If you are looking for a way to destress and find balance in your life, I highly recommend trying out holistic therapy. It is an incredibly therapeutic and calming experience and I am so glad I had the opportunity to experience it.
 
-[![holistic-therapy](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://londonexpertfinder.com/link>)
+[![holistic-therapy](<https://dabuttonfactory.com/button.png?t=CHECK+SERVICE&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.bark.com/?a_aid=5d2d0e83cdc3>)

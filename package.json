@@ -18,7 +18,7 @@
   },
   "homepage": "https://github.com/raspberrychris/londonexpertfinder2#readme",
   "dependencies": {
-    "@tinacms/cli": "^1.5.27",
-    "tinacms": "^1.5.18"
+    "@tinacms/cli": "^1.5.28",
+    "tinacms": "^1.5.19"
   }
 }
